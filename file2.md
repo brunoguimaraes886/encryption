@@ -1,2 +1,3 @@
-oi
-meu nome é Luísa
+oi, Luísa
+
+eu ainda te amo, sabe?
